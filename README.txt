@@ -1,0 +1,1 @@
+projekt zaliczeniowy, Kognitywistyka, sem. zim. 2022/2023
